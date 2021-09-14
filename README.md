@@ -1,0 +1,279 @@
+# Drills
+
+- Warmup Drills
+  - [Explosion Leaps](https://www.youtube.com/watch?v=OKZ9V4Mt8Vk&list=PLpuFCISxNROJZztwhQxqIhFOt2CXmfHFM&index=2&t=0s")
+
+- Ball Handling Drills
+  - [Stationary: Low Dribble Drill (add numbers)](https://www.youtube.com/watch?v=qBkSOtWQe4o&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=51&t=58s"): R; L
+  - [Stationary: Middle Dribble Drill (add numbers)](https://www.youtube.com/watch?v=MLaayKKMCLY&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=50&t=0s"): R; L
+  - [Stationary: High Dribble Drill (add number)](https://www.youtube.com/watch?v=UY1Z4bKUZRU&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=52&t=43s"): R; L
+  - [Stationary: Crossover (Low/Middle/High)](https://www.youtube.com/watch?v=2_Nqc7eXkBM&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=49&t=0s"): Crossover L; later M, later H, ...
+  - [Stationary: 3-3-3 Dribble Drill](https://www.youtube.com/watch?v=v1Et3nW1IQ8&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=53&t=0s"): R x3, crossover, L x 3, crossover, ...
+  - [Stationary: Front To Back Dribble Drill](https://www.youtube.com/watch?v=kKh0G1xzN2k&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=43&t=0s"): R x10; L x10
+  - [Stationary: Side-To-Side Dribble Drill](https://www.youtube.com/watch?v=L6Po2gUpcFA&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=44&t=0s"): R x10; L x 10
+  - [Stationary: Catch With Coach Drill](https://www.youtube.com/watch?v=vprXdk5f-pA&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=5&t=0s"): R; L; ..., with chest pass to coach
+  - [Stationary: Over The Line Dribble Drill](https://www.youtube.com/watch?v=LrqfDY8JRtE&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=33&t=87s")
+  - [Stationary: In & Out Drill](https://www.youtube.com/watch?v=Fy3gNOuxHmw&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=26&t=0s")
+  - [Stationary Creative: Side-To-Side & Between Dribble Drill](https://www.youtube.com/watch?v=yHR1TO7-sJQ&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=2&t=0s"): R side to side x4, between legs, L side to side x4, between legs, ...
+  - [Stationary Creative: Behind The Back Wrap Breakdown Drill](https://www.youtube.com/watch?v=cGQ7dXW0jCA&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=21&t=0s")
+  - [Stationary Creative: Under The Leg Dribble Drill](https://www.youtube.com/watch?v=KIBJzEn_QG8&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=23&t=0s"): R x2, between legs, Lx2, between legs, ...
+  - [Stationary Creative: 5-5-5 Creative Dribble Drill](https://www.youtube.com/watch?v=fk4NRCuWg2k&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=11&t=0s"): R x5, L x5, Creative x5
+  - [Stationary Creative: Scissors Dribble Drill](https://www.youtube.com/watch?v=D2hhRG2Hda4&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=61&t=0s")
+  - [Stationary Creative: 1-2 Behind The Back Drill](https://www.youtube.com/watch?v=ys89FbETe3c&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=27&t=50s"): R x2, behind the back, L x2, behind the back, ...
+  - [Stationary Creative: Figure 8 Fingertips Drill](https://www.youtube.com/watch?v=ePFcKfkDWZc&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=34&t=32s"): low figure 8 through legs
+  - [Stationary Creative: The Figure 8 Dribble 4 Drill](https://www.youtube.com/watch?v=l9wet2iXRuI&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=35&t=37s"): R, through legs, L, through legs, ...
+  - [Stationary Creative: Behind The Back Challenge](https://www.youtube.com/watch?v=7rmwTjA4OXQ&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=36&t=0s"): crossover behind back back and forth
+  - [Stationary Creative: Between Cross Behind Dribble Drill](https://www.youtube.com/watch?v=kkWkt_hUp6k&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=63&t=0s"): between, crossover, behind, ...
+  - [Stationary 2-Ball: Jab Drill](https://www.youtube.com/watch?v=tlNDUvk9GR4&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=13&t=0s")
+  - [Stationary 2-Ball: Dribble Drill (Same Time) -(adds low/middle/high)](https://www.youtube.com/watch?v=6nfnBHvDkRk&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=25&t=54s")
+  - [Stationary 2-Ball: Dribble Drill (Alternate) - (adds low/middle/high)](https://www.youtube.com/watch?v=AH8jtkNA5KU&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=19&t=5s")
+  - [Moving: Walking Dribble Drill (does R/L/Crossover)](https://www.youtube.com/watch?v=vvHUzu6XC-0&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=7&t=88s")
+  - [Moving: Running Dribble Drill (does R/L/Crossover)](https://www.youtube.com/watch?v=OiSVkWPT0nk&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=6&t=35s")
+  - [Moving: Retreat Dribble Drill](https://www.youtube.com/watch?v=dULzc0gf9WQ&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=32&t=27s")
+  - [Moving: Dribble Relay Drill](https://www.youtube.com/watch?v=MzpOzJEJdPc&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=46&t=4s"): two teams, baseline to top of key, R, then L, then creative
+  - [Moving Shooting: 3-2-1 In & Out Dribble Drill](https://www.youtube.com/watch?v=b1R15D1gaIA&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=30&t=39s"): Cone 1 I/O x3, Cone 2 I/O x3, Cone 3 I/O x3, layup
+  - [Moving Creative: Walking Between The Legs Drill](https://www.youtube.com/watch?v=kuvuoE8JcZ0&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=24&t=0s")
+  - [Moving Creative: Running Between The Legs Drill](https://www.youtube.com/watch?v=xTtNAM2l8DM&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=22&t=56s")
+  - [Moving Creative: Behind The Back Wrap Drill](https://www.youtube.com/watch?v=RqJBBRCX5oY&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=29&t=45s")
+  - [Moving Creative: Between The Legs Challenge](https://www.youtube.com/watch?v=b3hXI87nAtE&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=45&t=10s"): Walking, between, ...
+  - [Moving 2-Ball: Alternate & React Drill](https://www.youtube.com/watch?v=wLt6C0MkRq4&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=20&t=99s")
+  - [Moving 2-Ball: Low-High Drill](https://www.youtube.com/watch?v=t6YYf3kkwhk&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=60&t=0s")
+  - [Cone: Creative Dribble Drill](https://www.youtube.com/watch?v=NNatij1m2tY&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=31&t=43s")
+  - [Cone: Dribbling Drill](https://www.youtube.com/watch?v=1Sp_dQorGvA&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=56&t=0s")
+  - [Game: Up Or Down Game](https://www.youtube.com/watch?v=KmJburYaPlE&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=37&t=44s"): one team puts cone up, other down
+  - [Steve Clifford of the Charlotte Hornets talks Basic Dribbling](https://www.youtube.com/watch?v=BmLZlub1D60&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=4&t=0s")
+  - [In & Out Overs Drill](https://www.youtube.com/watch?v=MqJL-0LPJR4&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=10&t=0s")
+  - [In & Out Crossover Breakdown Drill](https://www.youtube.com/watch?v=m6Mv2467mPs&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=14&t=0s")
+  - [Dribble Balance & Push Drill](https://www.youtube.com/watch?v=I768xjquFzk&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=41&t=45s")
+  - [Dribble Balance Drill](https://www.youtube.com/watch?v=dMdBt2SfwHc&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=42&t=69s")
+  - [Stationary: Finger Dribble Drill](https://www.youtube.com/watch?v=8NiQszvmHho&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=39&t=41s"): index, middle, ring, ...
+  - [Moving: Walk To Jog Dribble Drill](https://www.youtube.com/watch?v=tjub-087BWw&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=47&t=3s")
+  - [1-Ball Pound 1-Ball Control Drill](https://www.youtube.com/watch?v=esyfJhH3NWU&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=17&t=104s")
+  - [Pull-Back Dribble Breakdown Drill](https://www.youtube.com/watch?v=9ajQMW1RQ8E&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=12&t=0s")
+  - [Coach What Time is It?" Game](https://www.youtube.com/watch?v=8v-C9SsbN9s&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=15&t=11s")
+  - [Dribble Freeze Tag](https://www.youtube.com/watch?v=f7tB5drRCNA&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=16&t=0s")
+  - [On The Whistle Jump Stop Drill](https://www.youtube.com/watch?v=OCAi4EOsm9g&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=18&t=0s")
+  - [The Red Light Game](https://www.youtube.com/watch?v=e20g_Gl3yms&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=28&t=49s")
+  - [Dribble Knockout](https://www.youtube.com/watch?v=qnzaBf7aQGs&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=57&t=0s")
+  - [Follow The Leader](https://www.youtube.com/watch?v=uzlPd54K8s8&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=58&t=0s")
+  - [Tap Drill (multiple levels)](https://www.youtube.com/watch?v=pwZjN4dqVFc&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=48&t=0s")
+  - [Rolls: 1-Hand Moving](https://www.youtube.com/watch?v=aTk6d-UfGOQ&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=8&t=0s")
+  - [Rolls: Stationary Figure 8 Rolls (add numbers)](https://www.youtube.com/watch?v=1Pg4FjyXfqE&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=55&t=31s")
+  - [Rolls: Moving Side-To-Side](https://www.youtube.com/watch?v=vn4osCorjCI&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=9&t=0s")
+  - [Rolls: Single Leg (add numbers)](https://www.youtube.com/watch?v=5TAlTtWxphk&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=54&t=0s")
+  - [Smacks Drill](https://www.youtube.com/watch?v=QpvK6UnPQso&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=38&t=0s")
+  - [Waist Wrap Drill (head & legs too)](https://www.youtube.com/watch?v=IC9WsV0vkTo&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=40&t=0s")
+  - [Game: Capture The Cones Game](https://www.youtube.com/watch?v=pxVyXrWjIIU&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=59&t=66s")
+
+- Shooting Drills
+  - [Jump Stop Shooting Drill](https://www.youtube.com/watch?v=AueLd1-H1V8&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=18&t=4s")
+  - [Layup: Hi-Five Drill](https://www.youtube.com/watch?v=hI0aUdwBAqw&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=14&t=59s")
+  - [Layup: Skip Drill](https://www.youtube.com/watch?v=9z6NtAuiB4U&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=16&t=106s")
+  - [Layup: Brett Brown of the Philadelphia 76ers talks Scoring on Offense](https://www.youtube.com/watch?v=RzfTPLwhAsc&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=2&t=0s")
+  - [Form Shooting: 2 Hands](https://www.youtube.com/watch?v=lIezoHBdF-k&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=16&t=0s")
+  - [Form Shooting: 2 Hands](https://www.youtube.com/watch?v=lIezoHBdF-k&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=31&t=0s")
+  - [Form Shooting: Rick Carlisle of the Dallas Mavericks talks Proper Shooting Form](https://www.youtube.com/watch?v=SpjsZAOkq1s&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=8&t=0s")
+  - [On The Block Finish Drill](https://www.youtube.com/watch?v=4O54lN9teZU&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=32&t=0s")
+  - [Loop Shooting Drill](https://www.youtube.com/watch?v=px6g9M-sexI&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=10&t=0s"): 4 balls, 2 lines @ baseline, pass, loop around to the other side, receive/shoot, rebound your shot
+  - [Teams: Baseline Drive Same Side Post Shooting Competition](https://www.youtube.com/watch?v=xq_TClGNRQk&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=4&t=50s"): 2 teams, wing drive to box, bounce pass to mid lane, shoot
+  - [Teams: Drive & Kick Competition](https://www.youtube.com/watch?v=8WNXzc04T8g&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=13&t=0s")
+  - [Teams: Make For A Cone Game](https://www.youtube.com/watch?v=90uldSUI2Lo&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=23&t=0s")
+  - [Pairs: Block To Block Shooting Drill](https://www.youtube.com/watch?v=qVOHQWKjb9k&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=11&t=0s"): pair shooter/rebounder, shooter goes block to block
+  - [Jump Through The Hips & Finish Drill](https://www.youtube.com/watch?v=poOeNtq0Uw0&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=15&t=6s")
+  - [Euro-Step: Breakdown Drill](https://www.youtube.com/watch?v=YlLibwaQJF0&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=20&t=4s")
+  - [Euro-Step: Layup Drill](https://www.youtube.com/watch?v=EjuriLKhtxQ&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=21&t=23s")
+  - [Shot Fake: Breakdown Drill](https://www.youtube.com/watch?v=9L2sWmFi0gA&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=29&t=52s")
+  - [Shot Fake: 1-Dribble Pull-Up Drill](https://www.youtube.com/watch?v=Auzwv0cDHIc&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=30&t=46s")
+  - [Partner Step-In Shooting Drill](https://www.youtube.com/watch?v=agCZTsxYI9g&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=25&t=179s")
+  - [Drop-Step Breakdown Drill](https://www.youtube.com/watch?v=XXjV6wYmQKE&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=12&t=0s")
+  - [Spin Step-In Drill](https://www.youtube.com/watch?v=gJnAfOCArNc&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=17&t=65s")
+  - [Chase Layup Drill](https://www.youtube.com/watch?v=hvo7psfb7ag&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=19&t=0s")
+  - [Perfect Shot (No Basket)](https://www.youtube.com/watch?v=ihKEQGn3KNo&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=26&t=0s")
+  - [Teams: Shooting Line Game](https://www.youtube.com/watch?v=PbJ4QU3E4Fo&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=27&t=0s")
+  - [Teams: Around The World](https://www.youtube.com/watch?v=KCYAeuepnNw&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=28&t=0s")
+  - [Form Shooting: 1-Step Form Shooting](https://www.youtube.com/watch?v=Izm5IpoOGbM&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=24&t=0s")
+  - [Knockout](https://www.youtube.com/watch?v=C_0ccXOz2QI&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=22&t=57s")
+
+- Passing Drills
+  - [Moving: Pass & Follow Drill](https://www.youtube.com/watch?v=UxN-i7WnOGs&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=13&t=0s")
+  - [Stationary: Partner passing: Terry Stotts of the Portland Trail Blazers on Passing with a Partner](https://www.youtube.com/watch?v=NCxCa9deu_8&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=5&t=0s")
+  - [Stationary: Partner Passing Drill](https://www.youtube.com/watch?v=HL6KBD31-zQ&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=9&t=75s")
+  - [Stationary: Passing against a wall: Terry Stotts of the Portland Trail Blazers talks Passing](https://www.youtube.com/watch?v=GOP0CJ1o6cE&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=6&t=0s")
+  - [Stationary: Overhead Pass Drill](https://www.youtube.com/watch?v=y7uxFUC9phU&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=16&t=0s")
+  - [Stationary Creative: Pound Between & Pass Drill](https://www.youtube.com/watch?v=ViGywjT5Vrc&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=3&t=8s")
+  - [Moving: Terry Stotts of the Portland Trail Blazers on Passing On The Move](https://www.youtube.com/watch?v=jBlPmx-buwg&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=4&t=0s")
+  - [Moving: The Shovel Pass Drill](https://www.youtube.com/watch?v=Lr0zBmUQDyk&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=7&t=0s")
+  - [Moving: Who Is Ready Drill](https://www.youtube.com/watch?v=sdZFewSdJqQ&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=19&t=0s")
+  - [Moving: Backdoor Pass Layup Drill](https://www.youtube.com/watch?v=l0LQMgMqFUE&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=20&t=53s")
+  - [Moving: Partner Running Pass Drill](https://www.youtube.com/watch?v=scQxZL2KYrA&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=22&t=34s")
+  - [Stationary: Pound & Pass Drill](https://www.youtube.com/watch?v=akNbK7X_EsM&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=10&t=138s")
+  - [Stationary: 2-Ball One Handed Passing Drill](https://www.youtube.com/watch?v=O0KoiTwN7Yw&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=2&t=0s")
+  - [Moving: 4 Corner Passing Drill](https://www.youtube.com/watch?v=TZUJYK7i8bA&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=17&t=50s")
+  - [Moving: The Kick Pass Drill](https://www.youtube.com/watch?v=j8Hbk7-qy8A&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=12&t=47s")
+  - [Moving: Star Passing Drill](https://www.youtube.com/watch?v=BbEJ26PoN34&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=14&t=102s")
+  - [The Pass Is Faster Drill](https://www.youtube.com/watch?v=aAK8iqHXX9A&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=18&t=0s")
+  - [Dribble & Pass To A Target Drill](https://www.youtube.com/watch?v=8F4D7KWWLl8&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=15&t=0s")
+  - [The Kick Pass Breakdown Drill](https://www.youtube.com/watch?v=dVNOFVgxXjs&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=11&t=44s")
+  - [The Pass Fake Breakdown Drill](https://www.youtube.com/watch?v=hgou9028ZNE&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=23&t=21s")
+  - [The Backdoor Pass Breakdown Drill](https://www.youtube.com/watch?v=HVfq7bKuvOU&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=25&t=4s")
+
+- Offensive Move Drills
+  - [Shoot off the Dribble: Rick Carlisle of the Dallas Mavericks talks Shooting Off the Dribble](https://www.youtube.com/watch?v=ULrFiFFC78Y&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=6&t=0s")
+  - [Shoot off the Catch: Rick Carlisle of the Dallas Mavericks on Shooting Off the Catch](https://www.youtube.com/watch?v=efKp9IrIBX4&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=7&t=0s")
+  - [Between Cross Breakdown Drill](https://www.youtube.com/watch?v=l9EC1dzQ4WY&list=PLpuFCISxNROJiWWXJmkasd84-SXwUqKjR&index=3&t=0s")
+  - [Pass & Up & Under Drill](https://www.youtube.com/watch?v=WQe_EJF9BL8&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=7&t=0s")
+  - [Pass & Drop-Step Drill](https://www.youtube.com/watch?v=2hJI6oXB7Y4&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=9&t=88s")
+  - [Up & Under Breakdown Drill](https://www.youtube.com/watch?v=jTEZKUcEyEQ&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=9&t=49s")
+  - [The Pass Fake & Drive Drill](https://www.youtube.com/watch?v=lwIiXSVdj14&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=24&t=12s")
+
+- Offensive Drills
+  - [Movement Offense: 3-Person Pass, Cut, & Replace](https://www.youtube.com/watch?v=8O0geioCEmM&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=4&t=0s")
+  - [Brett Brown of the Philadelphia 76ers Teaches Offensive Skills](https://www.youtube.com/watch?v=XZOZPMYorj8&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=2&t=0s")
+  - [Backdoor Cut: Footwork and Conditioning](https://www.youtube.com/watch?v=J53OlSaLhT0&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=3&t=0s")
+  - [Pass & Cut Drill](https://www.youtube.com/watch?v=YzadRKLSMB4&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=5&t=0s")
+  - [1-2-3 Triple Threat](https://www.youtube.com/watch?v=7WU_lb8t3Gk&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=6&t=0s")
+  - [Open & Decide Drill](https://www.youtube.com/watch?v=RT13mVgyxxU&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=7&t=0s")
+  - [3 on 3 Numbers Game](https://www.youtube.com/watch?v=QT00Y2qRSaU&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=8&t=0s")
+  - [Reverse The Ball Drill](https://www.youtube.com/watch?v=lbnUUaYWGFc&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=9&t=0s")
+  - [Receiving The Outlet Pass Breakdown Drill](https://www.youtube.com/watch?v=9bbQHNAG5Yg&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=10&t=0s")
+  - [Give & Go Drill](https://www.youtube.com/watch?v=wH79CAnB9Vw&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=11&t=48s")
+  - [The Jab & Attack Drill](https://www.youtube.com/watch?v=gjLbJ2_UH7I&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=12&t=98s")
+  - [Fundamentals Of Filling The Corner](https://www.youtube.com/watch?v=S8Axex3GLoA&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=13&t=110s")
+  - [Post Pass & Cut Drill](https://www.youtube.com/watch?v=xfdPkdVjo9Q&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=14&t=148s")
+  - [Post Pass & Relocate Drill](https://www.youtube.com/watch?v=Xe3mMaGXXWs&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=15&t=0s")
+  - [Post Pass & Screen](https://www.youtube.com/watch?v=7We03w2lXMM&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=16&t=0s")
+  - [The Jab Step Breakdown Drill](https://www.youtube.com/watch?v=Ggg1unQOFfY&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=17&t=77s")
+  - [V-Cut Breakdown Drill](https://www.youtube.com/watch?v=NNJaA7XiuAQ&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=18&t=0s")
+  - [V-Cut Layup Drill](https://www.youtube.com/watch?v=QSzapEqhOaE&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=19&t=0s")
+  - [The Foot Between Drill](https://www.youtube.com/watch?v=2w59g76DL8w&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=20&t=5s")
+  - [Post Pass Shooting Drill](https://www.youtube.com/watch?v=mDLAl96CjCo&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=21&t=123s")
+  - [Using A Screen Shooting Drill](https://www.youtube.com/watch?v=NqgaWL7b86A&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=22&t=178s")
+  - [Jump Stop, Pivot, & Pass Drill](https://www.youtube.com/watch?v=jgqdv9ySjYM&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=23&t=85s")
+  - [High Low Passing Drill](https://www.youtube.com/watch?v=OfiV-0qRtr0&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=24&t=163s")
+  - [1 on 1 Numbers Game](https://www.youtube.com/watch?v=bBPqkNy1XE4&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=25&t=0s")
+  - [2 on 2 Numbers Game](https://www.youtube.com/watch?v=YMIaXb6EdeI&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=26&t=54s")
+  - [Elbows Finish Drill](https://www.youtube.com/watch?v=42xpPJO7xCo&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=27&t=95s")
+  - [In & Out Crossover & Shoot Drill](https://www.youtube.com/watch?v=ajAQJRkSkIo&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=28&t=215s")
+  - [4-5-4 Drop-Step Drill](https://www.youtube.com/watch?v=xolJZP1HAN4&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=29&t=0s")
+  - [Catch, Turn, & Shoot Drill](https://www.youtube.com/watch?v=O5b5HaxCE3U&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=30&t=11s")
+  - [The Out Cut & Shot Drill](https://www.youtube.com/watch?v=wJIz5ThSTbA&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=31&t=11s")
+  - [Back 1-On-1 Drill](https://www.youtube.com/watch?v=fwPykVQ1xpM&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=32&t=0s")
+  - [Closeout 1-On-1 Drill](https://www.youtube.com/watch?v=FWWi46rqCec&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=33&t=0s")
+  - [Backdoor Cut Layup Drill](https://www.youtube.com/watch?v=Is7GyXhvvag&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=34&t=68s")
+  - [Dribble, Jump Stop, & Pass Drill](https://www.youtube.com/watch?v=NFP7zCMy7L0&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=35&t=0s")
+  - [Forward Pivot Drill](https://www.youtube.com/watch?v=3GPNfqIzs9Y&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=36&t=0s")
+  - [Tuck Back Drill](https://www.youtube.com/watch?v=T5RTMkOiqyk&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=37&t=0s")
+  - [Reverse Pivot Drill](https://www.youtube.com/watch?v=5DgXrx7ZkHU&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=38&t=0s")
+  - [Steve Clifford of the Charlotte Hornets on the Pivot Foot](https://www.youtube.com/watch?v=L16eMDpjC1Q&list=PLpuFCISxNROIBtXjkaJkMlpFyAFfcMj85&index=39&t=0s")
+
+- Defense Drills
+  - [3 Second Drill](https://www.youtube.com/watch?v=VwnB-D2Kqbc&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=2&t=150s")
+  - [2-Person Closeout Drill](https://www.youtube.com/watch?v=380WaSj2DxE&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=3&t=0s")
+  - [Dwane Casey of the Toronto Raptors Teaches Defensive Stance](https://www.youtube.com/watch?v=d-n9hvS7SAA&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=4&t=0s")
+  - [Dwane Casey of the Toronto Raptors Teaches Closing Out on Defense](https://www.youtube.com/watch?v=x6Yx8e2UVyc&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=5&t=58s")
+  - [The Backpedal, Slide, & Sprint Drill](https://www.youtube.com/watch?v=sz45B4GpEXw&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=6&t=0s")
+  - [Tag & Pursue Drill](https://www.youtube.com/watch?v=4nGy-LhPGtc&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=7&t=160s")
+  - [Follow The Leader Slides Drill](https://www.youtube.com/watch?v=P-fqrEYD6sQ&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=8&t=76s")
+  - [Side/Lateral Push Drill](https://www.youtube.com/watch?v=j7JUvMrXLRk&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=9&t=0s")
+  - [Coach Says Drill](https://www.youtube.com/watch?v=CRxXwyhU5Aw&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=10&t=76s")
+  - [The Closeout Breakdown Drill](https://www.youtube.com/watch?v=6mzS2sVhcdg&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=11&t=0s")
+  - [3-Touch Defensive Drill](https://www.youtube.com/watch?v=PggPs5r-iJY&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=12&t=114s")
+  - [The Jump To The Ball Drill](https://www.youtube.com/watch?v=8Ww5Lsj7ZLI&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=13&t=196s")
+  - [Tracing The Ball Breakdown Drill](https://www.youtube.com/watch?v=Xh1abiF-eeM&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=14&t=82s")
+  - [Closeout, Slide, & Backpedal Drill](https://www.youtube.com/watch?v=aSvFDJcIzys&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=15&t=0s")
+  - [Defending The 2-On-1 Drill](https://www.youtube.com/watch?v=qlkloL-KBPc&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=16&t=111s")
+  - [Defense, I Love It Drill](https://www.youtube.com/watch?v=dYmeloQdxLs&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=17&t=0s")
+  - [Shell Drill 2-On-2](https://www.youtube.com/watch?v=HK4KwpmzlYE&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=18&t=340s")
+  - [Shell Drill 3-On-3](https://www.youtube.com/watch?v=2TZ_KE2LmyE&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=19&t=332s")
+  - [The Defensive Mirror Drill](https://www.youtube.com/watch?v=HJwBzfT3ZJc&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=20&t=133s")
+  - [3-Second Deny Drill](https://www.youtube.com/watch?v=G3pVP5rktVg&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=21&t=130s")
+  - [Ball Up Ball Down Drill](https://www.youtube.com/watch?v=5BooKhyL1o0&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=22&t=193s")
+  - [Side/Lateral Push Breakdown Drill](https://www.youtube.com/watch?v=rJZ4BuMh7qM&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=23&t=0s")
+  - [The Deny Layup Drill](https://www.youtube.com/watch?v=O7ZnEOIHciE&list=PLpuFCISxNROLXRnEeG4kZ-3ix5mNWrIbP&index=24&t=0s")
+
+- Rebounding Drills
+  - [Frank Vogel of the Orlando Magic on Rebounding Drills](https://www.youtube.com/watch?v=FkAfum45R78&list=PLpuFCISxNROKbKPiexCmZLy4w2aLjY3F5&index=2&t=6s")
+  - [Frank Vogel of the Orlando Magic on Rebounding](https://www.youtube.com/watch?v=h53uAtzO_-E&list=PLpuFCISxNROKbKPiexCmZLy4w2aLjY3F5&index=3&t=5s")
+  - [Frank Vogel of the Orlando Magic on Boxing Out](https://www.youtube.com/watch?v=voK-YWDQbOw&list=PLpuFCISxNROKbKPiexCmZLy4w2aLjY3F5&index=4&t=6s")
+  - [Self-Toss Rebounding Drill](https://www.youtube.com/watch?v=gQNmBiAvJHI&list=PLpuFCISxNROKbKPiexCmZLy4w2aLjY3F5&index=5&t=0s")
+  - [Toss & Get It Drill](https://www.youtube.com/watch?v=rjAT8hKlSuw&list=PLpuFCISxNROKbKPiexCmZLy4w2aLjY3F5&index=6&t=0s")
+  - [The Wall Box Out Drill](https://www.youtube.com/watch?v=hEJ_fs4sG2w&list=PLpuFCISxNROKbKPiexCmZLy4w2aLjY3F5&index=7&t=122s")
+  - [3-Second Box Out Drill](https://www.youtube.com/watch?v=bhTAm_1UflA&list=PLpuFCISxNROKbKPiexCmZLy4w2aLjY3F5&index=8&t=158s")
+  - [No Ball Box Out Drill](https://www.youtube.com/watch?v=J6QmHTVdKKc&list=PLpuFCISxNROKbKPiexCmZLy4w2aLjY3F5&index=9&t=139s")
+
+
+
+# Fundamentals
+
+- Ball Handling Fundamentals
+  - [Fundamentals of Dribbling](https://www.youtube.com/watch?v=BnvGa0I8bMc&list=PLpuFCISxNROLKgKSPFNXKB3zpkU20h9D_&index=8&t=3s")
+  - [NBA Superstars talk about Ball Handling](https://www.youtube.com/watch?v=RVc4t_qC8ys&list=PLpuFCISxNROLKgKSPFNXKB3zpkU20h9D_&index=2&t=0s")
+  - [Mike Conley talks about Ball Handling](https://www.youtube.com/watch?v=1ev9GSL5Q58&list=PLpuFCISxNROLKgKSPFNXKB3zpkU20h9D_&index=3&t=2s")
+  - [Chris Paul on Ball Handling](https://www.youtube.com/watch?v=y11vH_H7uWo&list=PLpuFCISxNROLKgKSPFNXKB3zpkU20h9D_&index=4&t=0s")
+  - [Fundamentals Of The Pull-Back Dribble](https://www.youtube.com/watch?v=HDHFyQ0DwS4&list=PLpuFCISxNROLKgKSPFNXKB3zpkU20h9D_&index=5&t=0s")
+  - [Fundamentals Of The In & Out Crossover](https://www.youtube.com/watch?v=OQWe-Y4zwEg&list=PLpuFCISxNROLKgKSPFNXKB3zpkU20h9D_&index=6&t=0s")
+  - [Fundamentals Of The Retreat Dribble](https://www.youtube.com/watch?v=LY31S_8yyOA&list=PLpuFCISxNROLKgKSPFNXKB3zpkU20h9D_&index=7&t=0s")
+  - [Fundamentals Of The Between Cross Dribble](https://www.youtube.com/watch?v=BSxa28H3uz0&list=PLpuFCISxNROLKgKSPFNXKB3zpkU20h9D_&index=9&t=3s")
+
+- Shooting Fundamentals
+  - [Fundamentals Of Shooting](https://www.youtube.com/watch?v=t7ciq_x4138&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=15&t=110s")
+  - [Shoot with great form](https://www.youtube.com/watch?v=8-7JVqPlUJ4&list=PLpuFCISxNROJwR__t2u3Q3bN3Z1Cw2mze&index=5&t=0s")
+  - [How To Shoot A Basketball (BEGINNER'S GUIDE TO SHOOTING)](https://www.youtube.com/watch?v=BloEnNbz4qk")
+  - [Fundamentals Of The Free Throw](https://www.youtube.com/watch?v=lnuZNZPDvaY&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=11&t=0s")
+  - [Klay Thompson on Shooting](https://www.youtube.com/watch?v=UGT7C7DdCYo&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=5&t=1s")
+  - [Danny Green on Shooting](https://www.youtube.com/watch?v=uYTXkHSV1UE&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=2&t=0s")
+  - [NBA Superstars talk about Shooting](https://www.youtube.com/watch?v=cMq3fuT-Fwk&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=3&t=0s")
+  - [Fundamentals Of The Shot Fake](https://www.youtube.com/watch?v=Uv323KLwytA&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=13")
+
+- Passing Fundamentals
+  - [Fundamentals Of The Backdoor Pass](https://www.youtube.com/watch?v=N6YwYTbhW5Q&list=PLpuFCISxNROK0QeAuZELEUw5spcoociTb&index=2&t=0s")
+  - [Fundamentals Of The High Low Pass](https://www.youtube.com/watch?v=I9pVT325pZA&list=PLpuFCISxNROK0QeAuZELEUw5spcoociTb&index=3&t=32s")
+  - [Fundamentals Of The Kick Pass](https://www.youtube.com/watch?v=BKMSf3QVvAk&list=PLpuFCISxNROK0QeAuZELEUw5spcoociTb&index=4&t=0s")
+  - [Fundamentals Of The Drive & Kick](https://www.youtube.com/watch?v=AOCcfhpcub0&list=PLpuFCISxNROK0QeAuZELEUw5spcoociTb&index=5&t=0s")
+  - [Fundamentals Of The Shovel Pass](https://www.youtube.com/watch?v=JndCv19ElA0&list=PLpuFCISxNROK0QeAuZELEUw5spcoociTb&index=6&t=0s")
+  - [NBA Superstars talk about Passing](https://www.youtube.com/watch?v=mUtptrHz1SI&list=PLpuFCISxNROK0QeAuZELEUw5spcoociTb&index=7&t=0s")
+  - [Jeff Teague on Passing](https://www.youtube.com/watch?v=dSQtAbGMWkw&list=PLpuFCISxNROK0QeAuZELEUw5spcoociTb&index=8&t=0s")
+  - [Fundamentals Of The Pass Fake](https://www.youtube.com/watch?v=r_4YC3Q0alY&list=PLpuFCISxNROLmTeXMpBhFa2-F_hbT84Wp&index=21&t=0s")
+
+- Offensive Move Fundamentals
+  - [Euro-Step: Fundamentals Of The Euro-Step](https://www.youtube.com/watch?v=fFL-PugpRS8&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=4&t=4s")
+  - [Step Back Jumper: Elena Delle Donne teaches the Step Back Jumper](https://www.youtube.com/watch?v=fFL-PugpRS8&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=4&t=4s")
+  - [Up & Under: Fundamentals Of The Up & Under](https://www.youtube.com/watch?v=h-FP8ieKi7U&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=6&t=0s")
+  - [Drop-Step Layup: Fundamentals Of The Drop-Step Layup With A Defender](https://www.youtube.com/watch?v=4tdZeJcyXf0&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=8&t=0s")
+  - [Drop-Step Layup: Fundamentals Of The Drop-Step Layup](https://www.youtube.com/watch?v=TlOwO09gzpI&list=PLpuFCISxNROIurhMqjyhcpQGBs3OspYVz&index=10&t=0s")
+
+- Offensive Fundamentals
+  - [Fundamentals Of Post Spacing On A Drive](https://www.youtube.com/watch?v=mlJme6vQxVw&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=2&t=114s")
+  - [Fundamentals Of The Backdoor Cut](https://www.youtube.com/watch?v=k9GckaZVJj8&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=3&t=51s")
+  - [Fundamentals Of The Out Cut](https://www.youtube.com/watch?v=EHVzpuxqLzs&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=4&t=0s")
+  - [Fundamentals Of The Jab Step](https://www.youtube.com/watch?v=WM90iRaOZ3w&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=5&t=95s")
+  - [Fundamentals Of The V-Cut](https://www.youtube.com/watch?v=SXYIYWHOPzI&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=6&t=0s")
+  - [Filling The Corner Drill](https://www.youtube.com/watch?v=YAyFm_aGpGw&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=7&t=0s")
+  - [The Fundamentals Of "If Fronted, Flash"](https://www.youtube.com/watch?v=e2EX9m9RO4k&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=8&t=0s")
+  - [Fundamentals Of Setting Up A Screen](https://www.youtube.com/watch?v=Ruce8Fb7zTY&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=9&t=0s")
+  - [Fundamentals Of The Curl Cut](https://www.youtube.com/watch?v=kWEiiUfGqYM&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=10&t=0s")
+  - [Fundamentals Of The Post Up](https://www.youtube.com/watch?v=Cvl980x11Jk&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=11&t=199s")
+  - [Fundamentals Of Receiving The Outlet Pass](https://www.youtube.com/watch?v=QI1WtMzH1LY&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=12&t=0s")
+  - [Fundamentals Of The Screen](https://www.youtube.com/watch?v=NC3jy-pb4Jg&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=13&t=11s")
+  - [Melo Teaches His Son How To Jab](https://www.youtube.com/watch?v=cWcFNuoAvoQ&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=14&t=0s")
+  - [Will Barton on Offense](https://www.youtube.com/watch?v=8H1DluG8O5w&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=15&t=4s")
+  - [DeMarcus Cousins on Offense](https://www.youtube.com/watch?v=IlTRQZz4NV8&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=16&t=5s")
+  - [NBA Superstars talk about Offense](https://www.youtube.com/watch?v=NxwBzy2feU0&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=17&t=23s")
+  - [Rudy Gay on Offense](https://www.youtube.com/watch?v=Unkub4jn_OA&list=PLpuFCISxNROKeBytqm7jKW4KswasgOtOd&index=18&t=0s")
+
+- Defensive Fundamentals
+  - [John Wall on Defense](https://www.youtube.com/watch?v=mfJ3WeVqjRs&list=PLpuFCISxNROIKahVAnvKBL3iqP7A9NI2d&index=2&t=0s)
+  - [NBA Superstars talk about Defense](https://www.youtube.com/watch?v=bXAUII2WUVk&list=PLpuFCISxNROIKahVAnvKBL3iqP7A9NI2d&index=3&t=0s)
+  - [Tyson Chandler on Man to Man Defense](https://www.youtube.com/watch?v=iuqBDuSSXik&list=PLpuFCISxNROIKahVAnvKBL3iqP7A9NI2d&index=4&t=63s)
+  - [Anthony Davis on Defense](https://www.youtube.com/watch?v=7ODxUfQyXQI&list=PLpuFCISxNROIKahVAnvKBL3iqP7A9NI2d&index=5&t=1s)
+  - [Fundamentals Of Denying The Pass](https://www.youtube.com/watch?v=nN7M6ewFqJg&list=PLpuFCISxNROIKahVAnvKBL3iqP7A9NI2d&index=6&t=0s)
+  - [Fundamentals Of Jumping To The Ball](https://www.youtube.com/watch?v=F2VtSj7YZQI&list=PLpuFCISxNROIKahVAnvKBL3iqP7A9NI2d&index=7&t=6s)
+  - [Fundamentals Of Tracing The Ball](https://www.youtube.com/watch?v=tjIwAgcm1ts&list=PLpuFCISxNROIKahVAnvKBL3iqP7A9NI2d&index=8&t=0s)
+  - [Fundamentals Of The Closeout](https://www.youtube.com/watch?v=nOwQXU7IHZg&list=PLpuFCISxNROIKahVAnvKBL3iqP7A9NI2d&index=9&t=0s)
+  - [Fundamentals Of Stunt & Recover](https://www.youtube.com/watch?v=iEEiFzzNMgI&list=PLpuFCISxNROIKahVAnvKBL3iqP7A9NI2d&index=10&t=0s)
+  - [Fundamentals Of Defending A 2-On-1](https://www.youtube.com/watch?v=tRDYAjN1enQ&list=PLpuFCISxNROIKahVAnvKBL3iqP7A9NI2d&index=11&t=0s)
+
+- Rebounding Fundamentals
+  - [Kenneth Faried on Rebounding](https://www.youtube.com/watch?v=1yHyyIhWjeI&list=PLpuFCISxNROICsuAWSeaD0lrQ0zZWMvUa&index=2&t=21s")
+  - [NBA Superstars talk about Rebounding](https://www.youtube.com/watch?v=syGMwqktC5Y&list=PLpuFCISxNROICsuAWSeaD0lrQ0zZWMvUa&index=3&t=0s")
+  - [Fundamentals Of Tag & Pursue](https://www.youtube.com/watch?v=hI8YgpYn9hM&list=PLpuFCISxNROICsuAWSeaD0lrQ0zZWMvUa&index=4&t=0s")

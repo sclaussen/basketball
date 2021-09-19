@@ -1,18 +1,18 @@
 ## Today:
 
 - Ball Handling
-  - Stationary Ball Handling (5m)
+  - Stationary Ball Handling (low, cross, side/side, front/back) (10m)
   - Sideline to sideline (5m)
-- Passing
-  - Pair passing (5m)
-- Shooting
+- Passing (11:45)
+  - Pair passing (10m)
+- Shooting (11:55)
   - Form (5m)
   - Layup w/move (5m)
   - Pass/pick the pass/shoot (5m)
   - Shooting competition (10m - 3 rounds)
-- Rebounding
+- Rebounding (12:25)
   - Michigan
-- Scrimmage w/variations
+- Scrimmage w/variations (12:35 - 1)
 
 
 
